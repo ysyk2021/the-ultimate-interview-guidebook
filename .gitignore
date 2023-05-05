@@ -1,0 +1,7 @@
+book
+
+*.pdf
+*.epub
+*.mobi
+/node_modules/*
+/_book/*

@@ -1,5 +1,3 @@
-Can You Tell Me About A Time When You Had To Lead A Team Through A Challenging Project?
-============================================================================================================
 
 Leadership skills are highly valued in the workplace, and employers want to know if you have experience leading teams through challenging projects. This question is designed to determine your ability to manage complex tasks, motivate team members, and overcome obstacles. Here's how to answer this question:
 

@@ -1,5 +1,3 @@
-Can You Tell Me About A Time When You Had To Cross-Train Team Members To Cover Multiple Roles?
-===================================================================================================================
 
 Cross-training team members is an important aspect of managing a team. Employers want to know if you have experience in training and developing your team members to be able to cover multiple roles. Here's how to answer this question:
 

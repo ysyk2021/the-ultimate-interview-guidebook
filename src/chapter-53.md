@@ -1,5 +1,3 @@
-How Do You Handle Feedback From Team Members?
-==================================================================
 
 Receiving feedback from team members is an essential part of professional growth and development. This question is designed to determine your ability to receive and respond to feedback in a constructive and positive manner. Here's how to answer this question:
 

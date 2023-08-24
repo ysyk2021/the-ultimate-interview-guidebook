@@ -1,5 +1,3 @@
-What Kind Of Work Environment Do You Prefer?
-=================================================================
 
 Employers want to know if you are a good fit for their work environment. This question is designed to determine your preferences and whether they align with the company culture. Here's how to answer this question:
 

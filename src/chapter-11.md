@@ -1,5 +1,3 @@
-Why Did You Leave Your Last Job?
-=====================================================
 
 The question "Why did you leave your last job?" is a common question in job interviews. It's important to answer this question carefully as it can reveal a lot about your work history, professionalism, and attitude towards previous employers. In this chapter, we will discuss how to answer this question effectively and provide some sample answers.
 

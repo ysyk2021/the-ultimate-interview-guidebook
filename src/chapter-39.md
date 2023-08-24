@@ -1,5 +1,3 @@
-What Are Your Thoughts on Time Management?
-===============================================================
 
 When interviewing for a position, you may be asked about your thoughts on time management. This question is designed to assess your ability to manage your time effectively and efficiently.
 

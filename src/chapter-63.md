@@ -1,5 +1,3 @@
-What Is Your Experience With Strategic Planning?
-=====================================================================
 
 This question is designed to determine your experience and proficiency in strategic planning, as well as your ability to think strategically and align organizational goals with action plans. Here's how to answer this question:
 

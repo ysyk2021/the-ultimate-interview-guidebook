@@ -1,5 +1,3 @@
-What Is Your Management Style?
-===================================================
 
 Your management style is an essential aspect of your leadership approach and can have a significant impact on team productivity, morale, and job satisfaction. This question is designed to determine your leadership style and how it aligns with the company's culture and values. Here's how to answer this question:
 

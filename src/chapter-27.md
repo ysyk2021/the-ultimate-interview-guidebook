@@ -1,5 +1,3 @@
-How Do You Handle A Demanding Workload?
-============================================================
 
 When interviewing for a position, you may be asked about how you handle a demanding workload. This question is designed to assess your time-management skills, ability to prioritize tasks, and capacity to work under pressure.
 

@@ -1,5 +1,3 @@
-Can You Describe A Time When You Had To Handle A Difficult Conversation With A Coworker Or Team Member?
-============================================================================================================================
 
 Conflict resolution is an essential skill in the workplace, and employers want to know if you have the ability to handle difficult conversations with coworkers or team members. This question is designed to determine your communication and problem-solving skills when dealing with conflict. Here's how to answer this question:
 

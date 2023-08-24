@@ -1,5 +1,3 @@
-What Is Your Preferred Communication Style?
-================================================================
 
 When interviewing for a position, you may be asked about your preferred communication style. This question is designed to assess how you prefer to communicate with others in the workplace.
 

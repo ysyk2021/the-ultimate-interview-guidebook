@@ -1,5 +1,3 @@
-What Kind of Education or Training Do You Have That Would Make You Suitable for This Role?
-===============================================================================================================
 
 When interviewing for a position, you may be asked about your education or training and how it prepares you for the role. This question is designed to assess your qualifications and how they align with the requirements of the position.
 

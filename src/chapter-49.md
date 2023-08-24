@@ -1,5 +1,3 @@
-How Do You Handle A High-Pressure Situation?
-=================================================================
 
 This question is designed to determine your ability to handle stress and pressure in the workplace, as well as your problem-solving skills under difficult circumstances. Here's how to answer this question:
 

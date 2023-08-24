@@ -1,5 +1,3 @@
-What Kind Of Organizational Skills Do You Have?
-====================================================================
 
 Organizational skills are essential in many job roles, and employers want to hire candidates who can manage their workload effectively and stay organized. This question is designed to determine what kind of organizational skills you have and how you approach organizing your work. Here's how to answer this question:
 

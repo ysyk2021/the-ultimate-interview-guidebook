@@ -1,5 +1,3 @@
-How Do You Handle Criticism From Peers Or Coworkers?
-=========================================================================
 
 As an employee, it's important to be able to handle criticism from peers or coworkers in a professional and constructive manner. This question is designed to determine your ability to receive feedback and work collaboratively with others to achieve shared goals. Here's how to answer this question:
 

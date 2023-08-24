@@ -1,5 +1,3 @@
-What Do You Think Makes A Successful Team?
-===============================================================
 
 Building a successful team is crucial for achieving organizational goals. Employers want to know if you have an understanding of what makes a successful team and how you contribute to building one. Here's how to answer this question:
 

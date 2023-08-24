@@ -1,5 +1,3 @@
-What Kind of Experience Do You Have with Remote Work?
-==========================================================================
 
 When interviewing for a position, you may be asked about your experience with remote work. This question is designed to assess your ability to work effectively in a remote or distributed environment.
 

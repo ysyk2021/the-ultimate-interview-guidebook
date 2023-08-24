@@ -1,5 +1,3 @@
-What Are Your Thoughts On Diversity And Inclusion?
-=======================================================================
 
 Diversity and inclusion are essential topics in today's workplace. This question is designed to determine your thoughts on diversity and inclusion and how you believe they contribute to a positive work environment. Here's how to answer this question:
 

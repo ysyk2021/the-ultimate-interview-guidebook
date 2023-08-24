@@ -1,5 +1,3 @@
-What Is Your Experience With Email Marketing Or Newsletters?
-=================================================================================
 
 Email marketing and newsletters are common tools used by many companies to communicate with customers and promote their brand. Employers want to know if you have experience with these tools and how you have used them in the past. This question is designed to determine your familiarity with email marketing and newsletter creation. Here's how to answer this question:
 

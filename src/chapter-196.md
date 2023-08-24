@@ -1,5 +1,3 @@
-Can You Describe A Time When You Had To Manage A Project With Significant Supply Chain Or Logistics Considerations?
-========================================================================================================================================
 
 Employers may ask this question to assess your ability to manage projects that involve significant supply chain or logistics considerations, such as coordinating deliveries, managing inventory, or optimizing transportation routes. They want to know if you have the skills and experience necessary to ensure timely and cost-effective delivery of goods or services. Here are some tips on how to answer this question effectively:
 

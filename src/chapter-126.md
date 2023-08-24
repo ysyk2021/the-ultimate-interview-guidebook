@@ -1,5 +1,3 @@
-What Are Your Thoughts On The Importance Of Company Mission And Values?
-============================================================================================
 
 Company mission and values are a critical part of organizational culture, and employers want to know if you place importance on these factors. This question is designed to determine your understanding of the role that company mission and values play in the workplace. Here's how to answer this question:
 

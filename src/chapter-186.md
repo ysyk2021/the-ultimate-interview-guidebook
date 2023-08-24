@@ -1,5 +1,3 @@
-Can You Tell Me About A Time When You Had To Manage A Project That Required Significant Stakeholder Buy-In?
-================================================================================================================================
 
 Employers may ask this question to assess your ability to manage projects that require significant stakeholder buy-in, such as gaining approval from executives, coordinating with cross-functional teams, or convincing clients to adopt new strategies. They want to know if you have the skills and experience necessary to build positive relationships with stakeholders, communicate effectively, and achieve buy-in for your ideas. Here are some tips on how to answer this question effectively:
 

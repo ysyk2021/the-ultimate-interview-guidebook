@@ -1,5 +1,3 @@
-Can You Tell Me About A Time When You Had To Work With A Team Member Who Had A Different Working Style Than Your Own?
-==========================================================================================================================================
 
 Employers may ask this question to assess your ability to work collaboratively with others and adapt to different working styles. They want to know if you have the skills and experience necessary to communicate effectively, compromise, and build positive relationships with team members who have different approaches to work. Here are some tips on how to answer this question effectively:
 

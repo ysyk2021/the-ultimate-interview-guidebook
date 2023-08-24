@@ -1,5 +1,3 @@
-What Is Your Experience With Digital Marketing Or Social Media?
-====================================================================================
 
 Digital marketing and social media have become increasingly important in the business world, and many employers want to hire candidates who are familiar with these areas. This question is designed to determine your level of experience with digital marketing and social media, and your ability to use them effectively. Here's how to answer this question:
 

@@ -1,5 +1,3 @@
-How Do You Handle Unexpected Challenges Or Obstacles?
-==========================================================================
 
 In any job, unexpected challenges and obstacles are bound to arise. This question is designed to determine your ability to handle unexpected situations and find creative solutions to problems. Here's how to answer this question:
 

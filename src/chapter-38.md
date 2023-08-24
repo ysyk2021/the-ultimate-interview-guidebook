@@ -1,5 +1,3 @@
-What Are Your Thoughts On Company Culture?
-===============================================================
 
 Company culture is an essential aspect of any workplace. This question is designed to determine your thoughts on company culture and how it can impact employee satisfaction and overall success. Here's how to answer this question:
 

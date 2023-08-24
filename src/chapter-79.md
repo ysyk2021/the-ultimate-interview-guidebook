@@ -1,5 +1,3 @@
-How Did You Handle a Project That Didn't Go as Planned?
-============================================================================
 
 When interviewing for a position, you may be asked about how you handle projects that don't go as planned. This question is designed to assess your problem-solving skills, adaptability, and ability to work under pressure.
 

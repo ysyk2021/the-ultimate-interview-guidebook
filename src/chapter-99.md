@@ -1,5 +1,3 @@
-What Is Your Experience with Public Speaking or Presentations?
-===================================================================================
 
 When interviewing for a position, you may be asked about your experience with public speaking or presentations. This question is designed to assess your communication skills and ability to deliver effective presentations.
 

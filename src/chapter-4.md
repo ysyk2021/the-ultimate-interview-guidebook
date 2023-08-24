@@ -1,5 +1,3 @@
-What Are Your Weaknesses?
-==============================================
 
 When interviewing for a position, you may be asked about your weaknesses. This question is designed to assess your level of self-awareness and willingness to improve.
 

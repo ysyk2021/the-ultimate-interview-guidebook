@@ -1,5 +1,3 @@
-What Are Your Thoughts on the Importance of Diversity and Inclusion in Hiring?
-===================================================================================================
 
 When interviewing for a position, you may be asked about your thoughts on the importance of diversity and inclusion in hiring. This question is designed to assess your understanding of the benefits of creating a diverse and inclusive workplace.
 

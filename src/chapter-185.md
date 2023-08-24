@@ -1,5 +1,3 @@
-Can You Describe A Time When You Had To Manage A Project With Significant Legal Or Regulatory Implications?
-================================================================================================================================
 
 Projects with significant legal or regulatory implications can be complex and challenging to manage. Employers want to know if you have experience managing these types of projects and how you approach them. This question is designed to determine your ability to navigate legal and regulatory requirements while still achieving project goals. Here's how to answer this question:
 

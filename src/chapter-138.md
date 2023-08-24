@@ -1,5 +1,3 @@
-What are Your Thoughts on the Importance of Employee Recognition and Rewards?
-==================================================================================================
 
 When interviewing for a position, you may be asked about your thoughts on the importance of employee recognition and rewards. This question is designed to assess your understanding of how recognition and rewards can impact employee motivation and job satisfaction.
 

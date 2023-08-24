@@ -1,5 +1,3 @@
-What Are Your Thoughts On The Importance Of Empowering Employees?
-======================================================================================
 
 Empowering employees is an important aspect of effective leadership. Employers want to know if you understand the value of empowering employees and have the ability to do so. This question is designed to determine your leadership philosophy and approach to managing teams. Here's how to answer this question:
 

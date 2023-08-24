@@ -1,5 +1,3 @@
-Can You Tell Me About A Time When You Had To Manage A Project With A Tight Deadline?
-=========================================================================================================
 
 Managing a project with a tight deadline can be a challenging task, and employers want to know if you have experience in this area. This question is designed to determine your ability to work under pressure and manage your time effectively. Here's how to answer this question:
 

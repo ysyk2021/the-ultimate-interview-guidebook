@@ -1,5 +1,3 @@
-What Is Your Experience with Crisis Management?
-====================================================================
 
 When interviewing for a position, you may be asked about your experience with crisis management. This question is designed to assess your ability to stay calm under pressure, think critically, and communicate effectively in high-stress situations.
 

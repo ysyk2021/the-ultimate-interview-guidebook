@@ -1,5 +1,3 @@
-Can You Tell Me About A Time When You Had To Resolve A Conflict Among Team Members?
-========================================================================================================
 
 Employers may ask this question to assess your ability to handle and resolve conflicts among team members. They want to know if you have the skills and experience necessary to manage interpersonal relationships and ensure that everyone is working together effectively towards a common goal. Here are some tips on how to answer this question effectively:
 

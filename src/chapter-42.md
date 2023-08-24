@@ -1,5 +1,3 @@
-What Kind of Technical Skills Do You Have?
-===============================================================
 
 When interviewing for a technical position, you may be asked about your technical skills. This question is designed to assess your level of expertise and experience with specific technologies and tools.
 

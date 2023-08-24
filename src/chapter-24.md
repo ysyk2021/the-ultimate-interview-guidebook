@@ -1,5 +1,3 @@
-What Are Your Thoughts On Remote Work?
-===========================================================
 
 Remote work has become increasingly common in recent years, and many companies are adopting hybrid or fully remote models. This question is designed to determine your thoughts on remote work and your ability to work effectively in a distributed or virtual environment. Here's how to answer this question:
 

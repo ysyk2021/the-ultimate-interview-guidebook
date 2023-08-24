@@ -1,5 +1,3 @@
-Can You Describe A Time When You Had To Communicate A Difficult Decision To Your Team?
-===========================================================================================================
 
 Employers may ask this question to assess your ability to communicate effectively with your team and manage difficult situations. They want to know if you have the skills and experience necessary to deliver difficult news in a clear, concise, and empathetic manner while maintaining team morale and productivity. Here are some tips on how to answer this question effectively:
 

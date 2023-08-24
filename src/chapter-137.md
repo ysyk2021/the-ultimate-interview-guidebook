@@ -1,5 +1,3 @@
-What Do You Think Are the Most Important Qualities in a Successful Marketer?
-=================================================================================================
 
 When interviewing for a position in marketing, you may be asked about the most important qualities in a successful marketer. This question is designed to assess your understanding of the skills and traits necessary to excel in the field of marketing.
 

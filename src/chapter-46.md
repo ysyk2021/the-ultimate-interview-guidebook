@@ -1,5 +1,3 @@
-What Do You Think Makes A Good Team Leader?
-================================================================
 
 A good team leader is essential to the success of any team or project. This question is designed to determine your thoughts on leadership and what qualities you believe are important for a team leader to possess. Here's how to answer this question:
 

@@ -1,5 +1,3 @@
-What Are Your Thoughts On Teamwork?
-========================================================
 
 Teamwork is a critical component of success in many professional settings. This question is designed to determine your understanding of the importance of teamwork and your ability to work effectively with others. Here's how to answer this question:
 

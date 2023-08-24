@@ -1,5 +1,3 @@
-What Are Your Thoughts on the Importance of Transparency in Business?
-==========================================================================================
 
 When interviewing for a position, you may be asked about your thoughts on the importance of transparency in business. This question is designed to assess your understanding of the benefits of open communication and honesty in the workplace.
 

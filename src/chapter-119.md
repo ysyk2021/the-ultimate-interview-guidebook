@@ -1,5 +1,3 @@
-Can You Tell Me About A Time When You Had To Solve A Complex Problem?
-==========================================================================================
 
 Problem-solving is a critical skill in many industries, and employers want to know how you approach complex problems. This question is designed to determine your ability to analyze, strategize, and execute solutions to complex problems. Here's how to answer this question:
 

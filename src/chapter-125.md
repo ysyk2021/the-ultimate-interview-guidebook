@@ -1,5 +1,3 @@
-What Are Your Thoughts On The Importance Of Company Branding And Image?
-============================================================================================
 
 Company branding and image are crucial for establishing a strong reputation in the marketplace. Employers want to know if you understand the importance of company branding and image and how it contributes to business success. Here's how to answer this question:
 

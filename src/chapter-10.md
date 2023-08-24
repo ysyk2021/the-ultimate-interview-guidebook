@@ -1,5 +1,3 @@
-How Do You Prioritize Your Work?
-=====================================================
 
 Prioritizing work is a critical skill for success in many job positions. This question is designed to determine your ability to manage your workload effectively and prioritize tasks based on their importance and urgency. Here's how to answer this question:
 

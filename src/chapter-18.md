@@ -1,5 +1,3 @@
-What Are Your Long-Term Career Goals?
-==========================================================
 
 When interviewing for a position, you may be asked about your long-term career goals. This question is designed to assess your ambition and how the role fits into your overall career trajectory.
 

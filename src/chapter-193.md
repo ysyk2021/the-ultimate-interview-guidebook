@@ -1,5 +1,3 @@
-Can You Describe A Time When You Had To Manage A Project With Significant Stakeholder Communication Requirements?
-======================================================================================================================================
 
 Effective communication with stakeholders is crucial in any project management role. This question is designed to determine your ability to manage stakeholder communication and keep all parties informed and engaged throughout the project lifecycle. Here's how to answer this question:
 

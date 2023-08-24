@@ -1,5 +1,3 @@
-Can You Describe A Time When You Had To Manage A Project That Required Significant Collaboration Across Departments Or Teams?
-==================================================================================================================================================
 
 Employers may ask this question to assess your ability to manage projects that require significant collaboration across departments or teams, such as cross-functional initiatives or interdepartmental projects. They want to know if you have the skills and experience necessary to communicate effectively, build relationships, and coordinate efforts across diverse groups of stakeholders. Here are some tips on how to answer this question effectively:
 

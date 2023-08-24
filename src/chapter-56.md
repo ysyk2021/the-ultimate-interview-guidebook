@@ -1,5 +1,3 @@
-What Is Your Experience with Customer Service?
-===================================================================
 
 When interviewing for a position, you may be asked about your experience with customer service. This question is designed to assess your ability to handle customer interactions and provide excellent service.
 

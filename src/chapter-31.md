@@ -1,5 +1,3 @@
-Do You Consider Yourself A Self-Starter?
-=============================================================
 
 Employers are looking for candidates who can take ownership of their work and demonstrate initiative without being prompted. This question is designed to determine if you have the ability to take charge of your work, be proactive, and show a willingness to learn and grow. Here's how to answer this question:
 

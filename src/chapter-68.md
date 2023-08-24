@@ -1,5 +1,3 @@
-How Do You Prioritize Competing Projects Or Tasks?
-=======================================================================
 
 This question is designed to determine your ability to manage multiple tasks or projects simultaneously, as well as your approach to prioritizing and delegating responsibilities. Here's how to answer this question:
 

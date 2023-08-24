@@ -1,5 +1,3 @@
-Can You Describe A Time When You Had To Work With A Tight Budget?
-======================================================================================
 
 As a potential employee, it's important to demonstrate your ability to work within constraints and find creative solutions when resources are limited. This question is designed to determine your experience and skills in managing tight budgets and whether you can contribute to the company's goals. Here's how to answer this question:
 

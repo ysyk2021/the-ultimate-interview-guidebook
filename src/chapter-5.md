@@ -1,5 +1,3 @@
-How Do You Stay Organized?
-===============================================
 
 Staying organized is a crucial skill in any job, and employers want to know if you have strategies for keeping yourself on track. Here's how to answer this question:
 

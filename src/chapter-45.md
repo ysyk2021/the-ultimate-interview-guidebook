@@ -1,5 +1,3 @@
-How Do You Handle Conflicts With Coworkers?
-================================================================
 
 When interviewing for a position, you may be asked about how you handle conflicts with coworkers. This question is designed to assess your conflict resolution skills, communication skills, and ability to work collaboratively with others.
 

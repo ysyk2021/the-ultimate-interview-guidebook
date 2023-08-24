@@ -1,5 +1,3 @@
-How Would You Describe Your Work Ethic?
-============================================================
 
 When interviewing for a position, you may be asked to describe your work ethic. This question is designed to assess your level of commitment, discipline, and dedication to your work.
 

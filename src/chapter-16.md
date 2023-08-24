@@ -1,5 +1,3 @@
-What Do You Know About Our Company?
-========================================================
 
 Researching the company you are interviewing with is a critical step in preparing for any job interview. This question is designed to determine your level of research on the company and your understanding of its values, mission, and goals. Here's how to answer this question:
 

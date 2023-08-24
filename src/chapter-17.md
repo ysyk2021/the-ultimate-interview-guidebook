@@ -1,5 +1,3 @@
-How Do You Handle A Negative Review?
-=========================================================
 
 Negative reviews are a common occurrence in many industries, and employers want to know how you handle them. This question is designed to determine your ability to remain professional and handle feedback constructively. Here's how to answer this question:
 

@@ -1,5 +1,3 @@
-What Kind Of Mentoring Experience Do You Have?
-===================================================================
 
 Mentoring can be an essential part of professional development, and employers want to know about your experience as both a mentor and mentee. This question is designed to determine your ability to provide guidance and support to others and receive feedback and guidance from mentors. Here's how to answer this question:
 

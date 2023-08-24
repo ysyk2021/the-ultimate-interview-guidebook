@@ -1,5 +1,3 @@
-What Kind Of Experience Do You Have With Software Or Technology Platforms?
-===============================================================================================
 
 This question is designed to determine your level of experience and proficiency with software and technology platforms, as well as your ability to adapt to new tools and technologies. Here's how to answer this question:
 

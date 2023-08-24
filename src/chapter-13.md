@@ -1,5 +1,3 @@
-What Are Your Salary Expectations?
-=======================================================
 
 When interviewing for a position, you may be asked about your salary expectations. This question is designed to assess your understanding of your worth and the market value of your skills and experience.
 

@@ -1,5 +1,3 @@
-What Are Your Thoughts On Change Management?
-=================================================================
 
 Change is inevitable in any organization, and employers want to know how you approach change management. This question is designed to determine your ability to adapt to changes and manage them effectively. Here's how to answer this question:
 

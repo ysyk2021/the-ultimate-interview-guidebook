@@ -1,5 +1,3 @@
-How Do You Handle Tight Deadlines?
-=======================================================
 
 When interviewing for a position, you may be asked about how you handle tight deadlines. This question is designed to assess your ability to work under pressure and effectively manage your time.
 

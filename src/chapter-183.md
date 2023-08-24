@@ -1,5 +1,3 @@
-Can You Describe A Time When You Had To Navigate A Complex Organizational Structure To Get Something Done?
-===============================================================================================================================
 
 Employers may ask this question to assess your ability to navigate complex organizational structures and work effectively across teams and departments. They want to know if you have the skills and experience necessary to identify key stakeholders, build relationships, and coordinate efforts to achieve successful outcomes. Here are some tips on how to answer this question effectively:
 

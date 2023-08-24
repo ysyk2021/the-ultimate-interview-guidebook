@@ -1,5 +1,3 @@
-How Do You Handle Unexpected Changes Or Pivots In Strategy?
-================================================================================
 
 Unexpected changes or pivots in strategy can happen in any business. Employers want to know if you have the ability to adapt to these changes and still achieve goals. This question is designed to determine your approach to problem-solving and how you deal with uncertainty. Here's how to answer this question:
 

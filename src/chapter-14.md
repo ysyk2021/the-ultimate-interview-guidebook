@@ -1,5 +1,3 @@
-How Do You Keep Yourself Motivated?
-========================================================
 
 When interviewing for a position, you may be asked how you keep yourself motivated. This question is designed to assess your ability to stay focused and driven even during challenging times.
 

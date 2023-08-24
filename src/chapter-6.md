@@ -1,5 +1,3 @@
-How Do You Handle Criticism?
-=================================================
 
 Receiving criticism is a common occurrence in the workplace, and it's important to know how to handle it professionally and constructively. Employers want to know how you handle criticism and whether you can use it as an opportunity for growth and development. Here's how to answer this question:
 

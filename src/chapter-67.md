@@ -1,5 +1,3 @@
-What Would You Say Is Your Management Philosophy?
-======================================================================
 
 Employers want to hire managers who have a clear and effective management philosophy. This question is designed to determine your approach to managing teams and whether it aligns with the company's goals and values. Here's how to answer this question:
 

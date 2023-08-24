@@ -1,5 +1,3 @@
-What Is Your Experience With Data Entry Or Record Keeping?
-===============================================================================
 
 Data entry and record keeping are essential skills in many industries and job functions. This question is designed to determine your experience with data entry or record keeping and your ability to maintain accurate records. Here's how to answer this question:
 

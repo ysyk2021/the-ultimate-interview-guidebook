@@ -1,5 +1,3 @@
-Can You Tell Me About A Time When You Had To Manage A Project With Significant Interdepartmental Conflict?
-===============================================================================================================================
 
 Managing a project with significant interdepartmental conflict can be challenging, but it is a common situation in many workplaces. This question is designed to determine your ability to manage conflicts and work collaboratively across departments to achieve business objectives. Here's how to answer this question:
 

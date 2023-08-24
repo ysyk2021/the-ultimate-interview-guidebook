@@ -1,5 +1,3 @@
-How Do You Handle Competing Priorities?
-============================================================
 
 Handling competing priorities is a common challenge in many workplaces. This question is designed to determine your ability to manage multiple tasks and prioritize effectively. Here's how to answer this question:
 

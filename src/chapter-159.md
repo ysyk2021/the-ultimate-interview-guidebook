@@ -1,5 +1,3 @@
-What Do You Do When You Disagree With A Decision Made By Your Manager Or Supervisor?
-=========================================================================================================
 
 Disagreements with managers or supervisors can be challenging, but it's important to handle them professionally and constructively. Employers want to know how you handle disagreements in the workplace. Here's how to answer this question:
 

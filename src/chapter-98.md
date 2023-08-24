@@ -1,5 +1,3 @@
-What Is Your Experience With Content Management Systems (CMS)?
-===================================================================================
 
 Content management systems (CMS) are commonly used in many industries to manage digital content and streamline processes. This question is designed to determine your experience with CMS and your ability to work effectively with these tools. Here's how to answer this question:
 

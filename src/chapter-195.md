@@ -1,5 +1,3 @@
-What Are Your Thoughts On The Importance Of Collaboration Between Different Departments Or Teams Within A Company?
-=======================================================================================================================================
 
 Collaboration is a critical component of success in the workplace, and employers want to know if you understand the importance of working across departments or teams. This question is designed to determine your views on collaboration and how you prioritize it as a professional. Here's how to answer this question:
 

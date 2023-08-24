@@ -1,5 +1,3 @@
-What Would You Say Is Your Greatest Professional Achievement So Far?
-=========================================================================================
 
 This question is designed to determine your ability to reflect on past successes and showcase your achievements in a professional setting. Here's how to answer this question:
 

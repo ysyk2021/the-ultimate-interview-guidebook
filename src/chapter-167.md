@@ -1,5 +1,3 @@
-Can You Tell Me About a Time When You Had to Make a Decision Without Complete Information?
-===============================================================================================================
 
 When interviewing for a position, you may be asked about a time when you had to make a decision without complete information. This question is designed to assess your problem-solving skills and ability to make informed decisions under uncertainty.
 

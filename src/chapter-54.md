@@ -1,5 +1,3 @@
-What Are Your Thoughts on Employee Engagement?
-===================================================================
 
 When interviewing for a position, you may be asked about your thoughts on employee engagement. This question is designed to assess your understanding of the importance of employee engagement and how you would contribute to creating a positive workplace culture.
 

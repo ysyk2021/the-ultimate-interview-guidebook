@@ -1,5 +1,3 @@
-Can You Describe a Time When You Had to Manage a Project with Significant Hardware or Equipment Requirements?
-==================================================================================================================================
 
 When interviewing for a position, you may be asked about your experience managing a project with significant hardware or equipment requirements. This question is designed to assess your ability to manage complex projects and work effectively with technical teams.
 

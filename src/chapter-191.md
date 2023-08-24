@@ -1,5 +1,3 @@
-Can You Describe A Time When You Had To Manage A Project With Significant Regulatory Or Compliance Requirements?
-=====================================================================================================================================
 
 In many industries, regulatory and compliance requirements are critical considerations when managing projects. This question is designed to determine your ability to manage projects effectively while ensuring compliance with relevant regulations and protocols. Here's how to answer this question:
 

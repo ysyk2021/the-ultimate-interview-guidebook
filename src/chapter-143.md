@@ -1,5 +1,3 @@
-Can You Tell Me About A Time When You Had To Make A Difficult Ethical Decision?
-====================================================================================================
 
 Difficult ethical decisions can arise in any workplace, and employers want to know if you have the ability to make tough decisions while still upholding ethical standards. This question is designed to determine your ethical decision-making process and how you approach complex ethical dilemmas. Here's how to answer this question:
 

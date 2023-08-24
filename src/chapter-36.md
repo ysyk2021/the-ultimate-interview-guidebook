@@ -1,5 +1,3 @@
-How Do You Handle Constructive Criticism?
-==============================================================
 
 When interviewing for a position, you may be asked how you handle constructive criticism. This question is designed to assess your ability to receive feedback and use it to improve your work performance.
 

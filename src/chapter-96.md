@@ -1,5 +1,3 @@
-What Are Your Thoughts On The Importance Of Employee Autonomy?
-===================================================================================
 
 Employee autonomy refers to the level of independence and decision-making authority given to employees in their work. This question is designed to determine your thoughts on employee autonomy and how you approach working independently or collaboratively with others. Here's how to answer this question:
 

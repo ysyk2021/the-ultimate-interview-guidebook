@@ -1,5 +1,3 @@
-Describe a Project or Accomplishment That You're Proud Of
-==============================================================================
 
 When interviewing for a position, you may be asked about a project or accomplishment that you're proud of. This question is designed to assess your past successes and how you work towards achieving goals.
 

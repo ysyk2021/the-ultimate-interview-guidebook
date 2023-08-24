@@ -1,5 +1,3 @@
-Can You Describe a Time When You Had to Work Through a Language or Cultural Barrier?
-=========================================================================================================
 
 When interviewing for a position, you may be asked about a time when you had to work through a language or cultural barrier. This question is designed to assess your cross-cultural communication skills and ability to adapt to different situations.
 

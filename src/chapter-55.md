@@ -1,5 +1,3 @@
-What Are Your Thoughts On Employee Motivation?
-===================================================================
 
 As an employee, it's important to understand the importance of employee motivation in creating a positive and productive work environment. This question is designed to determine your understanding of employee motivation and whether you can contribute to the company's goals. Here's how to answer this question:
 

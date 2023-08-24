@@ -1,5 +1,3 @@
-What Are Some Of Your Hobbies Or Interests Outside Of Work?
-================================================================================
 
 Employers want to know about your hobbies and interests outside of work because they provide insight into your personality, character, and potential fit for the company culture. This question is designed to determine your ability to balance work and personal life and engage in activities that cultivate personal growth and development. Here's how to answer this question:
 

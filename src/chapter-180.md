@@ -1,5 +1,3 @@
-What Do You Think Is the Most Important Thing to Keep in Mind When Dealing with Clients or Customers?
-==========================================================================================================================
 
 When interviewing for a position, you may be asked about what you think is the most important thing to keep in mind when dealing with clients or customers. This question is designed to assess your customer service skills and understanding of the importance of building and maintaining relationships with clients or customers.
 

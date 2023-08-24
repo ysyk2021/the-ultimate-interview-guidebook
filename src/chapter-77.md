@@ -1,5 +1,3 @@
-What Is Your Experience With Performance Evaluations?
-==========================================================================
 
 Performance evaluations are a critical component of employee development and growth. This question is designed to determine your experience with performance evaluations, including your attitude toward them and how you approach goal-setting and feedback. Here's how to answer this question:
 

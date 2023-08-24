@@ -1,5 +1,3 @@
-What Kind Of Experience Do You Have With Process Improvement Or Optimization?
-==================================================================================================
 
 When interviewing for a position, you may be asked about your experience with process improvement or optimization. This question is designed to assess your ability to identify areas for improvement and find ways to optimize processes to streamline workflows and increase efficiency.
 

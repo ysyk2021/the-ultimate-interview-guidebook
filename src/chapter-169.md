@@ -1,5 +1,3 @@
-What Are Your Thoughts On The Importance Of Employee Feedback And Input In Decision-Making?
-================================================================================================================
 
 Employee feedback and input are essential for creating a positive work environment, promoting employee engagement, and making effective business decisions. This question is designed to determine your understanding of the importance of employee feedback and input in decision-making. Here's how to answer this question:
 

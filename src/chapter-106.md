@@ -1,5 +1,3 @@
-What Kind Of Feedback Have You Received From Previous Employers?
-=====================================================================================
 
 Employers want to hire candidates who have a track record of receiving positive feedback from their previous employers. This question is designed to determine your work ethic, performance, and ability to collaborate with others. Here's how to answer this question:
 

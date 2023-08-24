@@ -1,5 +1,3 @@
-What Is Your Greatest Accomplishment?
-==========================================================
 
 This question is designed to determine your ability to set and achieve goals, as well as your overall level of success. Here's how to answer this question:
 

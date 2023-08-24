@@ -1,5 +1,3 @@
-Can You Describe A Time When You Had To Influence Someone To Change Their Mind?
-====================================================================================================
 
 Employers may ask this question to assess your ability to persuade and influence others, especially in situations where you need to change their minds or gain their support. They want to know if you have the skills and experience necessary to communicate effectively, build relationships, and negotiate to achieve desired outcomes. Here are some tips on how to answer this question effectively:
 

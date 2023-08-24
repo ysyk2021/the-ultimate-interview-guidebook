@@ -1,5 +1,3 @@
-What Are Your Thoughts On Goal-Setting?
-============================================================
 
 Goal-setting is an essential part of personal and professional development and can help individuals achieve their desired outcomes. This question is designed to determine your thoughts and approach to goal-setting. Here's how to answer this question:
 

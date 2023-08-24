@@ -1,5 +1,3 @@
-What Are Your Thoughts On The Importance Of Emotional Intelligence In Leadership?
-======================================================================================================
 
 Emotional intelligence is a critical trait for effective leadership. Employers want to know if you understand the importance of emotional intelligence and how you incorporate it into your leadership style. Here's how to answer this question:
 

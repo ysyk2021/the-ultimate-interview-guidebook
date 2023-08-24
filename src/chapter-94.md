@@ -1,5 +1,3 @@
-What Is Your Experience With Event Planning Or Coordination?
-=================================================================================
 
 Event planning and coordination involve managing various logistics to ensure the success of an event, such as scheduling, budgeting, and vendor management. This question is designed to determine your experience with event planning or coordination and your ability to manage events effectively. Here's how to answer this question:
 

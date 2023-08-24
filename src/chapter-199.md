@@ -1,5 +1,3 @@
-Can You Tell Me About A Time When You Had To Manage A Project That Required Significant Vendor Or Contractor Management?
-=============================================================================================================================================
 
 Vendor or contractor management is an important skill in many industries, and employers want to know if you have experience managing projects that involve external parties. This question is designed to determine your ability to coordinate and communicate with vendors or contractors to ensure successful project outcomes. Here's how to answer this question:
 

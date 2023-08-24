@@ -1,5 +1,3 @@
-Can You Describe A Time When You Had To Make A Decision That Was Unpopular But Necessary?
-==============================================================================================================
 
 Employers may ask this question to assess your ability to make tough decisions that are necessary for the success of the organization, even if they are unpopular among colleagues or stakeholders. They want to know if you have the skills and experience necessary to balance competing interests, communicate effectively, and make difficult choices when needed. Here are some tips on how to answer this question effectively:
 

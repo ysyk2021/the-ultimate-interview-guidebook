@@ -1,5 +1,3 @@
-What Are Your Expectations For Your Team Members?
-======================================================================
 
 As a team leader, it's important to have clear expectations for your team members. Employers want to know if you have the ability to set expectations and communicate them effectively. This question is designed to determine your leadership style and approach to managing your team. Here's how to answer this question:
 

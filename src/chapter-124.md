@@ -1,5 +1,3 @@
-What Kind Of Experience Do You Have With Quality Control Or Assurance?
-===========================================================================================
 
 Quality control and assurance are critical components of many industries, including manufacturing, healthcare, and software development. Employers want to know if you have experience with quality control or assurance and how you approach ensuring the quality of products or services. Here's how to answer this question:
 

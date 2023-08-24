@@ -1,5 +1,3 @@
-What Kind Of Analytical Skills Do You Have?
-================================================================
 
 Analytical skills are essential in many industries and job functions. This question is designed to determine your experience with analytical skills and your ability to analyze data and make informed decisions. Here's how to answer this question:
 

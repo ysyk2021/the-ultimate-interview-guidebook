@@ -1,5 +1,3 @@
-How Do You Handle Feedback From Customers Or Clients?
-==========================================================================
 
 As an employee, it's important to be able to handle feedback from customers or clients in a professional and constructive manner. This question is designed to determine your ability to receive and act on feedback in a way that benefits the company and its customers. Here's how to answer this question:
 

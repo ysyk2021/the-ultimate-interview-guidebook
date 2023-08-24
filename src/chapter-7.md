@@ -1,5 +1,3 @@
-How Do You Handle Deadlines?
-=================================================
 
 This question is designed to determine your ability to manage time effectively and meet deadlines, as well as your approach to prioritizing tasks and managing workload. Here's how to answer this question:
 

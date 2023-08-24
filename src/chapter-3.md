@@ -1,5 +1,3 @@
-What Are Your Strengths?
-=============================================
 
 When interviewing for a position, you may be asked about your strengths. This question is designed to assess your self-awareness and understanding of what you can bring to the role.
 

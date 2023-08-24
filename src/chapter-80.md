@@ -1,5 +1,3 @@
-How Do You Handle A Team Member Who Is Underperforming?
-============================================================================
 
 Managing underperforming team members is a common challenge in the workplace. This question is designed to determine your ability to address underperformance and support team members effectively. Here's how to answer this question:
 

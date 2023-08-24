@@ -1,5 +1,3 @@
-How Do You Handle Difficult Employees Or Colleagues?
-=========================================================================
 
 This question is designed to determine your ability to manage interpersonal relationships and handle difficult situations in the workplace. Here's how to answer this question:
 

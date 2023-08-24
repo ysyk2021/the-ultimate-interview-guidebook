@@ -1,5 +1,3 @@
-What Kind Of Leadership Experience Do You Have?
-====================================================================
 
 Leadership experience is a crucial factor in many roles, and employers want to know about your leadership experience. This question is designed to determine your ability to lead and manage teams effectively. Here's how to answer this question:
 

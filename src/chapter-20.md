@@ -1,5 +1,3 @@
-What Are Your Thoughts on Innovation?
-==========================================================
 
 When interviewing for a position, you may be asked about your thoughts on innovation. This question is designed to assess your understanding of the importance of innovation and how it can drive success in an organization.
 

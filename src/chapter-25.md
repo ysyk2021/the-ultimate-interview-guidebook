@@ -1,5 +1,3 @@
-What Are Your Thoughts On Risk-Taking?
-===========================================================
 
 Risk-taking is an essential part of personal and professional growth, and employers want to know how you approach it. This question is designed to determine your attitude towards taking risks and your ability to manage them effectively. Here's how to answer this question:
 

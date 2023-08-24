@@ -1,5 +1,3 @@
-Can You Tell Me About Yourself?
-====================================================
 
 "Can you tell me about yourself?" is a common question asked at the beginning of many job interviews. This open-ended question is designed to allow you to introduce yourself and provide an overview of your skills, experiences, and qualifications. Here's how to answer this question:
 

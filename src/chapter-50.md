@@ -1,5 +1,3 @@
-What Are Your Expectations For Your Manager?
-=================================================================
 
 As an employee, it's important to have clear expectations for your manager in order to ensure a positive and productive work environment. This question is designed to determine what you expect from your manager and whether those expectations align with the company's management style. Here's how to answer this question:
 

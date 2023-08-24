@@ -1,5 +1,3 @@
-Can You Tell Me About A Time When You Had To Work With A Partner Or Vendor Who Wasn't Delivering As Promised?
-==================================================================================================================================
 
 Employers may ask this question to assess your ability to manage relationships with partners and vendors. They want to know if you have the skills and experience necessary to identify and address issues that arise during collaborations, ensuring that both parties meet their obligations and achieve successful outcomes. Here are some tips on how to answer this question effectively:
 

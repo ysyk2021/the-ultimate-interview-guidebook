@@ -1,5 +1,3 @@
-What Are Your Thoughts On The Importance Of Corporate Social Responsibility?
-=================================================================================================
 
 Corporate social responsibility (CSR) has become an increasingly important topic in the business world, and employers want to hire candidates who are knowledgeable about CSR and its importance. This question is designed to determine your thoughts on the importance of CSR. Here's how to answer this question:
 

@@ -1,5 +1,3 @@
-What Kind of Experience Do You Have with Vendor Management?
-================================================================================
 
 When interviewing for a position, you may be asked about your experience with vendor management. This question is designed to assess your ability to work effectively with external vendors and manage relationships with them.
 

@@ -1,5 +1,3 @@
-How Do You Handle Changes In The Workplace?
-================================================================
 
 Changes in the workplace can be challenging, but they are a natural part of any business. Employers want to know if you have the ability to adapt to changes and continue to perform at a high level. This question is designed to determine your ability to handle uncertainty and change. Here's how to answer this question:
 

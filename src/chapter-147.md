@@ -1,5 +1,3 @@
-Can You Describe A Time When You Had To Manage A Project With Limited Resources?
-=====================================================================================================
 
 Employers may ask this question to assess your ability to manage projects with limited resources, including budget, time, and personnel. They want to know if you have the skills and experience necessary to optimize resources and deliver successful outcomes despite limitations. Here are some tips on how to answer this question effectively:
 

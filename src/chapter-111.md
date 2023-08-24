@@ -1,5 +1,3 @@
-What Kind Of Experience Do You Have With Supply Chain Management?
-======================================================================================
 
 Supply chain management is a critical function in many businesses. Employers want to know if you have the necessary experience and skills to manage supply chains effectively. This question is designed to determine your knowledge of supply chain management and your ability to apply it in a real-world setting. Here's how to answer this question:
 

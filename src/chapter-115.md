@@ -1,5 +1,3 @@
-What Is Your Experience with Conflict Resolution in a Team Setting?
-========================================================================================
 
 When interviewing for a position, you may be asked about your experience with conflict resolution in a team setting. This question is designed to assess your ability to handle disagreements and conflicts within a team.
 

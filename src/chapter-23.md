@@ -1,5 +1,3 @@
-How Do You Handle Stress And Pressure?
-===========================================================
 
 Stress and pressure are common in many work environments, and employers want to hire candidates who can handle these challenges effectively. This question is designed to determine how you cope with stress and pressure, and whether you have strategies in place to manage them. Here's how to answer this question:
 

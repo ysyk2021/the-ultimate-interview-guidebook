@@ -1,5 +1,3 @@
-What Are Your Thoughts On Mentorship?
-==========================================================
 
 When interviewing for a position, you may be asked about your thoughts on mentorship. This question is designed to assess your interest in learning from others and your willingness to help others grow.
 

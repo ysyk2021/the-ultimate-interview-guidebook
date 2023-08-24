@@ -1,5 +1,3 @@
-What Is Your Experience With Customer Relationship Management (CRM) Software?
-==================================================================================================
 
 Customer relationship management (CRM) software is a tool used by many businesses to manage and analyze customer interactions and data throughout the customer lifecycle. This question is designed to determine your level of experience with CRM software and your ability to use it effectively. Here's how to answer this question:
 

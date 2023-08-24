@@ -1,5 +1,3 @@
-How Do You Handle Ambiguity Or Uncertainty?
-================================================================
 
 In many jobs, ambiguity and uncertainty are a regular part of the work environment. This question is designed to determine your ability to handle situations where there is no clear answer or outcome. Here's how to answer this question:
 

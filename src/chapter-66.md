@@ -1,5 +1,3 @@
-What Is Your Experience With Conflict Resolution?
-======================================================================
 
 Conflict is inevitable in any workplace, and employers want to know how you handle it. This question is designed to determine your experience with conflict resolution and whether you can handle disagreements professionally and constructively. Here's how to answer this question:
 

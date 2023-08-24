@@ -1,5 +1,3 @@
-What Are Your Thoughts on Effective Communication?
-=======================================================================
 
 When interviewing for a position, you may be asked about your thoughts on effective communication. This question is designed to assess your communication skills and understanding of the importance of clear and concise communication in the workplace.
 

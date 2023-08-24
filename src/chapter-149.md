@@ -1,5 +1,3 @@
-What Are Your Thoughts On The Importance Of Employee Wellness And Mental Health?
-=====================================================================================================
 
 Employee wellness and mental health have become increasingly important topics in the workplace, and employers want to know if you understand their significance. This question is designed to determine your views on employee well-being and how you prioritize it as a professional. Here's how to answer this question:
 

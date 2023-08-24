@@ -1,5 +1,3 @@
-Can You Tell Me About A Time When You Had To Learn Something Quickly On The Job?
-=====================================================================================================
 
 This question is designed to determine your ability to adapt and learn quickly in a new work environment, as well as your problem-solving skills and ability to think critically. Here's how to answer this question:
 

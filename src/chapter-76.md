@@ -1,5 +1,3 @@
-What Do You Think Makes A Successful Project Manager?
-==========================================================================
 
 Project managers play a critical role in the success of any project. Employers want to know if you understand what it takes to be an effective project manager. This question is designed to determine your understanding of the skills and traits that are necessary for successful project management. Here's how to answer this question:
 

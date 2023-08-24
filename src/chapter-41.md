@@ -1,5 +1,3 @@
-What Is Your Experience With Multitasking?
-===============================================================
 
 Multitasking is a common requirement in many job positions, and it involves managing multiple tasks simultaneously. This question is designed to determine your ability to multitask effectively without compromising the quality of your work. Here's how to answer this question:
 

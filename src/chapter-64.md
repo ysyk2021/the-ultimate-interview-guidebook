@@ -1,5 +1,3 @@
-How Do You Handle Project Changes or Scope Creep?
-======================================================================
 
 When interviewing for a position, you may be asked about how you handle project changes or scope creep. This question is designed to assess your ability to adapt to changing circumstances and maintain focus on project goals.
 

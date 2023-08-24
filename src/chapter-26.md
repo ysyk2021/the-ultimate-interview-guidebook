@@ -1,5 +1,3 @@
-What Skills Do You Bring To The Table?
-===========================================================
 
 The question "What skills do you bring to the table?" is a common question in job interviews. It's important to answer this question thoughtfully as it gives you the opportunity to showcase your unique skill set. In this chapter, we will discuss how to answer this question effectively and provide some sample answers.
 

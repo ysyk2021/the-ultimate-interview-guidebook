@@ -1,5 +1,3 @@
-What Motivates You?
-========================================
 
 Employers want to hire candidates who are motivated and driven to succeed. This question is designed to determine what motivates you and whether your motivations align with the company's values and goals. Here's how to answer this question:
 

@@ -1,5 +1,3 @@
-How Do You Handle Constructive Feedback?
-=============================================================
 
 Constructive feedback is an essential part of personal and professional growth, and employers want to know how you handle it. This question is designed to determine your ability to handle feedback constructively and use it to improve. Here's how to answer this question:
 

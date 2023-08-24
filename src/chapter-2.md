@@ -1,5 +1,3 @@
-Why Should We Hire You?
-============================================
 
 The question "Why should we hire you?" is a common question in job interviews. It's important to answer this question strategically as it gives you the opportunity to showcase your skills and experience. In this chapter, we will discuss how to answer this question effectively and provide some sample answers.
 

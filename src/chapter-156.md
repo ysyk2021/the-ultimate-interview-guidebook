@@ -1,5 +1,3 @@
-What Kind Of Experience Do You Have With Project Scoping Or Requirements Gathering?
-========================================================================================================
 
 Project scoping and requirements gathering are essential components of project management that involve defining project goals, identifying deliverables, and outlining project requirements. This question is designed to determine your experience with these processes and your ability to manage projects effectively. Here's how to answer this question:
 

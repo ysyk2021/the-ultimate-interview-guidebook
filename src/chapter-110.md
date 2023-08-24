@@ -1,5 +1,3 @@
-What Do You Think Are The Biggest Challenges Facing This Company?
-======================================================================================
 
 This question is designed to determine your ability to research and understand the company you are interviewing with, as well as your critical thinking skills and ability to identify potential challenges or opportunities. Here's how to answer this question:
 

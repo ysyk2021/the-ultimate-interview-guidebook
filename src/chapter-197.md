@@ -1,5 +1,3 @@
-Can You Describe A Time When You Had To Manage A Project With Significant Technological Disruption To The Industry?
-========================================================================================================================================
 
 Employers may ask this question to assess your ability to manage projects in the face of technological change and disruption. They want to know if you have the skills and experience necessary to adapt to new technologies and manage projects successfully despite the challenges they present. Here are some tips on how to answer this question effectively:
 

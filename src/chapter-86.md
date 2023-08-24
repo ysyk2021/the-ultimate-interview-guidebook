@@ -1,5 +1,3 @@
-What Are Your Thoughts On The Importance Of Collaboration?
-===============================================================================
 
 Collaboration is a critical skill in many industries, and employers want to know if you understand its importance. This question is designed to determine your understanding of the role that collaboration plays in the workplace. Here's how to answer this question:
 

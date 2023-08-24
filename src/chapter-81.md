@@ -1,5 +1,3 @@
-What Do You Think Sets You Apart From Other Candidates?
-============================================================================
 
 Employers want to know what makes you unique and how you can contribute to their organization. This question is designed to determine what sets you apart from other candidates and why you believe you are the right fit for the job. Here's how to answer this question:
 

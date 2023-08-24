@@ -1,5 +1,3 @@
-Can You Describe A Time When You Had To Sell Something Despite Objections?
-===============================================================================================
 
 In sales roles, the ability to sell effectively despite objections is crucial. This question is designed to determine your ability to handle objections and persuade customers or clients effectively. Here's how to answer this question:
 

@@ -1,5 +1,3 @@
-Describe A Time When You Had To Make A Difficult Decision.
-===============================================================================
 
 Making difficult decisions is a critical skill in many job roles and industries. This question is designed to determine your ability to make tough choices and the decision-making process you use. Here's how to answer this question:
 

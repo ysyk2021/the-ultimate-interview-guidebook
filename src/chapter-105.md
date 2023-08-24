@@ -1,5 +1,3 @@
-What Kind of Experience Do You Have with Cross-Functional Teams?
-=====================================================================================
 
 When interviewing for a position, you may be asked about your experience working with cross-functional teams. This question is designed to assess your ability to collaborate and work effectively with colleagues from different departments or areas of expertise.
 

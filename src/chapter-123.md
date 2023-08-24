@@ -1,5 +1,3 @@
-Describe A Time When You Had To Prioritize Competing Responsibilities
-==========================================================================================
 
 Prioritizing competing responsibilities is a common challenge in the workplace, and employers want to know if you have the ability to manage multiple priorities effectively. This question is designed to determine your ability to prioritize tasks, manage time effectively, and make decisions when faced with conflicting demands. Here's how to answer this question:
 

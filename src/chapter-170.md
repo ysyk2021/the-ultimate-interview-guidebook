@@ -1,5 +1,3 @@
-What Are Your Thoughts on the Importance of Transparency in Hiring and Promotion Decisions?
-================================================================================================================
 
 When interviewing for a position, you may be asked about your thoughts on the importance of transparency in hiring and promotion decisions. This question is designed to assess your values around fairness and equity in the workplace.
 

@@ -1,5 +1,3 @@
-Why Do You Want To Work For This Company?
-==============================================================
 
 Employers want to know that candidates are genuinely interested in working for their company and not just looking for any job. This question is designed to determine your motivation for applying to the specific position and company. Here's how to answer this question:
 

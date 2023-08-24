@@ -1,5 +1,3 @@
-What Kind Of Project Management Experience Do You Have?
-============================================================================
 
 Project management is a critical skill in many industries and job functions. This question is designed to determine your experience with project management and your ability to lead teams and deliver projects successfully. Here's how to answer this question:
 

@@ -1,5 +1,3 @@
-What Are Your Thoughts on Delegation?
-==========================================================
 
 When interviewing for a position, you may be asked about your thoughts on delegation. This question is designed to assess your leadership and management skills, as well as your ability to effectively distribute tasks and responsibilities.
 

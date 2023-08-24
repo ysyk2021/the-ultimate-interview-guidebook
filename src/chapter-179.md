@@ -1,5 +1,3 @@
-Can You Tell Me About A Time When You Had To Manage A Project With Significant Logistical Challenges?
-==========================================================================================================================
 
 Managing a project with logistical challenges is a common occurrence in many industries, and employers want to know how you handle these situations. This question is designed to determine your ability to problem-solve and manage complex projects. Here's how to answer this question:
 

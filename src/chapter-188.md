@@ -1,5 +1,3 @@
-Can You Tell Me About A Time When You Had To Manage A Project With Significant Sustainability Considerations?
-==================================================================================================================================
 
 Employers may ask this question to assess your ability to manage projects with significant sustainability considerations, such as reducing waste, minimizing carbon emissions, or promoting social responsibility. They want to know if you have the skills and experience necessary to balance environmental impact with business goals and achieve sustainable outcomes. Here are some tips on how to answer this question effectively:
 

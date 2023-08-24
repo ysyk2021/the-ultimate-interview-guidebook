@@ -1,5 +1,3 @@
-Can You Tell Me About A Time When You Had To Adapt To A New Technology Or Software?
-========================================================================================================
 
 Adapting to new technology and software is a critical skill in today's fast-paced workplace, and employers want to know if you have experience in this area. This question is designed to determine your ability to learn new technologies quickly and efficiently. Here's how to answer this question:
 
